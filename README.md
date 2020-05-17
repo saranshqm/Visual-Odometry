@@ -17,3 +17,4 @@
 
 
 For more info: contact: saransh.official.iitkgp@gmail.com / saransh.gupta@iitkgp.ac.in
+visit my website: https://saranshqm.github.io/saransh/ for more blogs
